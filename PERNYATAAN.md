@@ -2,9 +2,9 @@
 
 Yang bertanda tangan dibawah ini
 
-* Nama : Dicky Wahyudi
+* Nama : Dick Wahyudi
 * NIM : 165150200111005
-* Kelas : IF-I
+* Kelas : TIF I
 
 **Demi Allah** (atau sesuai keyakinan masing-masing) bahwa pekerjaan saya ini **MURNI** hasil pekerjaan sendiri. Jika saya melakukan kecurangan dalam mengerjakan tugas ini, saya **siap** menerima semua sanksi yang berlaku di dunia dan akhirat.
 
